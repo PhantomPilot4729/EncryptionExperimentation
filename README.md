@@ -1,0 +1,1 @@
+Not a whole lot to say here. pretty standard, punch the stuff in according to the prompt. don't overthink it, doing so will probably break the duct tape and glue holding it together. made this in about 2 hours because i was bored as shit, and i needed to understand maclaurin series
